@@ -1,1 +1,1 @@
-WHATEVER POPS UP IN MY MIND BASICALLY
+whatever i am learning
